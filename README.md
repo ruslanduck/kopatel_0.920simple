@@ -1,0 +1,1 @@
+# kopatel_0.920simple
